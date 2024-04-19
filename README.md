@@ -1,0 +1,2 @@
+# priemiroprojetotinker
+maluqieci isso
